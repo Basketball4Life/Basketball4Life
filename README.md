@@ -16,4 +16,4 @@ Here are some ideas to get you started:
 -->
 I'm currently a student at Dobyns Bennet High School
 
-I play basket and I fish for fun
+I play basketball and I fish for fun
